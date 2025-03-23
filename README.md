@@ -2,7 +2,7 @@
 - 👀 I’m interested in mostly EU4, board games, comics and related stuff
 - 📫 impactomega@gmail.com
 - 😄 Pronouns: I kindly decline.
-- ⚡ Fun fact: 
+- ⚡ Fun fact: What is this .... fun youre talking about?
 
 <!---
 AuldCetai/AuldCetai is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
